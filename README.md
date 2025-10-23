@@ -1,5 +1,5 @@
 # Choqy-Pananda-S.
-Check it out !!
+
 # 💫 About Me:
 My name is Choqy Pananda Sirait.<br>I am an information systems student at the Del Institute of Technology.<br>I like to coding and design.<br>In God I Trust, I Can.<br>
 
